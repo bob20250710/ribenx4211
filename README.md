@@ -16,4 +16,4 @@
 
 在未来，成人视频网站可能会更注重用户行为数据的挖掘。通过收集并分析用户的观看习惯，平台能够在个性化推荐、广告投放、内容更新等方面做得更好，提升平台的整体竞争力。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/bob20250710/ribenx4211 ）</span>
